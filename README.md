@@ -58,9 +58,8 @@ I'm passionate about working with data, developing intelligent applications, and
 ---
 
 ## 🤝 Connect With Me
-
 - 💻 GitHub: [@umavaddepudi](https://github.com/umavaddepudi)
-- 🔗 LinkedIn: [Connect with me](uma-vaddepudi-b37a53282)
+- 🔗 LinkedIn: [Connect with me](https://www.linkedin.com/in/uma-vaddepudi-b37a53282/)
 
 ---
 
